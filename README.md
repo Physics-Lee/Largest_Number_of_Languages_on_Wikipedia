@@ -1,0 +1,1 @@
+Duke Huan [Huan Wen] murmured while lying down: 'If I endure this obscurity, I shall be laughed at by the Emperors Wen and Jing (of Han).' Then he suddenly sat up and declared: 'If I cannot leave a virtuous name for posterity, should I not at least leave a foul reputation for millennia?
